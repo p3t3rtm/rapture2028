@@ -22,35 +22,29 @@
 
 # Not Yet Fulfilled Prophecies
 ### An attempt is made to sort the prophecies in chronological order, based on the most likely sequence of events. All of the following will take place within the next 7-8 years from the time of this writing.
-- Trump doing a peace deal with Israel and Saudi Arabia enabling the building of the third temple.
+- Trump doing a peace deal with Israel and Saudi Arabia enabling the construction of the third temple.
 - USA Trade Wars.
 - Major attacks on US soil. Terrorism of immense magnitude.
-- Emmanuel Macron rises up as the pre-antichrist. The same spirit that was on Hitler is going to come onto him. Hilter 2.0, if you may, but he is not the antichrist.
 - Global economy crash of a lifetime. People lining up for food for miles.
-- Global virus 350 million dead in the Americas alone.
+- Everything money related turns digital/crypto.
+- BRICS becomes the new world reserve currency and Soviet allies join BRICS.
+- To counter BRICS, Trump introduces a currency named ***Amero*** with Canada and Mexico being the first memebers. The rest of the Allied nations will join the Amero alliance shortly after.
 - Global famine.
+- Global virus 350 million dead in the Americas alone.
+- Emmanuel Macron rises up as the pre-antichrist. The same spirit that was on Hitler is going to come onto him. Hilter 2.0, if you may, but he is not the antichrist.
 - Global World War 3.
 - Alien invasion/disclosure event.
-- BRICS becomes the new world reserve currency.
-- Soviet allies join BRICS.
-- To counter BRICS, Trump introduces a currency named ***Amero*** with Canada and Mexico being the first memebers.
-- Allied nations to join Trump's Amero.
-- Everything money related turns digital/crypto.
-- Antichrist is a person that comes from the Middle East region.
+- Rapture of the Church some time in the year 2028.
+- Antichrist is introduced. All power is given to him for 3.5 years. It will a man that comes from the Middle East region. He will mandate a one-world government, currency, and religion. You will be forced to worship him. He will mandate the mind-control chip (based on current neurolink technology) that is to be implanted in your right hand or forehead. If you refuse, your head will be cut off. If you take it, you will be damned to hell as it is the final rejection of God and free will.
 - Asteroid strikes off the coast of Florida, in the Atlantic Ocean.
 - Portland and Seattle split from the US and sink into the sea.
 - 10.0 earthquake that runs down the middle of the US.
 - Yellowstone supervolcano eruption.
 - Italy supervolcano eruption.
-- Beast mind control chip implanted in your right hand/forehead.
-- One-world currency.
-- One-world government.
-- One-world religion.
-- Antichrist is in control.
-- Jesus comes back with his raptured church.
-- Millennium reign of Christ on Earth for 1000 years.
 - BTC ***values*** over $1m USD a coin.
 - XRP ***values*** over $10k USD a coin.
+- Jesus comes back with his raptured church.
+- Millennium reign of Christ on Earth for 1000 years.
 
 
 # My Personal Interpretation of the Times and Seasons
