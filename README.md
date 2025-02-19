@@ -5,7 +5,8 @@
 # Primary Sources
 ### A list of primary sources that have been used to compile this document. These sources are chosen for their reliability and credibility. There are more prophecies and sources that could be added to this list, but these are the best ones to start with.
 - The Bible
-- [**[Brandon Biggs]**](https://www.nytimes.com/2003/10/23/us/victim-s-son-is-given-award-for-forgiving-father-s-murderer.html)
+- [**[Brandon Biggs]**](https://www.nytimes.com/2003/10/23/us/victim-s-son-is-given-award-for-forgiving-father-s-murderer.html) 
+- - [[Youtube]](https://www.youtube.com/@lastdays247)
 
 
 
@@ -21,7 +22,8 @@
 
 # Not Yet Fulfilled Prophecies
 ### An attempt is made to sort the prophecies in chronological order, based on the most likely sequence of events. All of the following will take place within the next 7-8 years from the time of this writing. In no particular order, the listed events are expected to take place in the near future.
-- Trade wars.
+- Trump doing a peace deal with Israel and Saudi Arabia enabling the building of the third temple.
+- USA Trade Wars.
 - Major attacks on US soil. Terrorism of immense magnitude.
 - Global economy crash of a lifetime. People lining up for food for miles.
 - Global virus 350 million dead in the Americas alone.
@@ -30,8 +32,8 @@
 - Alien invasion/disclosure event.
 - BRICS becomes the new world reserve currency.
 - Soviet allies join BRICS.
-- Trump issues Amero with Canada and Mexico to counter BRICS.
-- Allied nations join Trump.
+- To counter BRICS, Trump introduces a currency named ***Amero*** with Canada and Mexico being the first memebers.
+- Allied nations to join Trump's Amero.
 - Everything money related turns digital/crypto.
 - Antichrist is a person that comes from the Middle East region.
 - Asteroid strikes off the coast of Florida, in the Atlantic Ocean.
@@ -46,11 +48,8 @@
 - Antichrist is in control.
 - Jesus comes back with his raptured church.
 - Millennium reign of Christ on Earth for 1000 years.
-- XRP ***values*** over $10k USD a coin.
 - BTC ***values*** over $1m USD a coin.
-
-
-
+- XRP ***values*** over $10k USD a coin.
 
 
 # My Personal Interpretation of the Times and Seasons
