@@ -21,10 +21,11 @@
 - Trump assassination attempt on his life. Bullet flew by his right ear. 
 
 # Not Yet Fulfilled Prophecies
-### An attempt is made to sort the prophecies in chronological order, based on the most likely sequence of events. All of the following will take place within the next 7-8 years from the time of this writing. In no particular order, the listed events are expected to take place in the near future.
+### An attempt is made to sort the prophecies in chronological order, based on the most likely sequence of events. All of the following will take place within the next 7-8 years from the time of this writing.
 - Trump doing a peace deal with Israel and Saudi Arabia enabling the building of the third temple.
 - USA Trade Wars.
 - Major attacks on US soil. Terrorism of immense magnitude.
+- Emmanuel Macron rises up as the pre-antichrist. The same spirit that was on Hitler is going to come onto him. Hilter 2.0, if you may, but he is not the antichrist.
 - Global economy crash of a lifetime. People lining up for food for miles.
 - Global virus 350 million dead in the Americas alone.
 - Global famine.
@@ -54,8 +55,9 @@
 
 # My Personal Interpretation of the Times and Seasons
 ### This perspective is taken from considering multiple interpretations of the biblical prophecies and is the perspective that is most coherent when considering all the pieces of the puzzle. It is consistent with the biblical prophecies and modern day predictions that have been made.
-- Tribulations will start sometime this year (2025) and will last for 7 years. In the middle of the tribulations period (3.5 years as was written), the rapture of the church will take place. After which, the Antichrist will be revealed and will take control of the world. He will establish a one-world government, one-world currency, and one-world religion. He will also implement a mark of the beast system that will require everyone to receive a chip in their right hand or forehead in order to buy or sell. Those who refuse to take the mark will be persecuted and killed.
-- The Antichrist will rule for 3.5 years, during which time there will be great tribulation and suffering on the earth. At the end of the 7-year tribulation period (3.5 years after the rapture), Jesus will return with his raptured church to defeat the Antichrist and establish his kingdom on earth for 1000 years. This period is known as the Millennium Reign of Christ.
+- My personal speculation on the Emmanuel Macron prophecy is that he is going to be the person that introduces ethic cleansing of the Muslims in Europe. He has a track record of claiming that Islam is in crisis and has tried to reform Islam. He often has conflicts with the Islam community.
+- Tribulations will start sometime this year (2025) and will last for 7 years. In the middle of the tribulations period (3.5 years as was written), the rapture of the church will take place. After which, the antichrist will be revealed and will take control of the world. He will establish a one-world government, one-world currency, and one-world religion. He will also implement a mark of the beast system that will require everyone to receive a chip in their right hand or forehead in order to buy or sell. Those who refuse to take the mark will be persecuted and killed.
+- The antichrist will rule for 3.5 years, during which time there will be great tribulation and suffering on the earth. At the end of the 7-year tribulation period (3.5 years after the rapture), Jesus will return with his raptured church to defeat the antichrist and establish his kingdom on earth for 1000 years. This period is known as the Millennium Reign of Christ.
 
 # Conclusion
 If you have not yet given your life to Jesus, I urge you to do so now. The time is short, and the days are evil. The signs of the times are all around us, and it is clear that we are living in the last days. Jesus is the only way to salvation, and he is the only one who can save us from the coming judgment. If you have not yet accepted Jesus as your Lord and personal Savior, I encourage you to do so now. Repent of your sins, and ask Jesus to come into your heart and save you. He loves you and he wants to save you. Don't wait until it is too late. No one is promised tomorrow. Give your life to God, and submit fully unto Him, **NOW**, and be saved.
