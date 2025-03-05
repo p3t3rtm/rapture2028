@@ -1,10 +1,10 @@
 # Rapture 2028
 
-### This document is a collection of prophecies and predictions that have been made by various people over the years. It is not meant to be a comprehensive list, but rather a starting point for further research and discussion. The purpose of this document is to provide a resource for those who are interested in exploring the topic of prophecy and its potential implications for the future.
+### This document is a collection of prophecies and predictions that have been made over the years. It is not meant to be a comprehensive list, but rather a starting point for further research and discussion.
 
 # Primary Sources
 ### A list of primary sources that have been used to compile this document. These sources are chosen for their reliability and credibility. There are more prophecies and sources that could be added to this list, but these are the best ones to start with.
-- The Bible
+- The Holy Bible
 - [**[Brandon Biggs]**](https://www.nytimes.com/2003/10/23/us/victim-s-son-is-given-award-for-forgiving-father-s-murderer.html) 
 - - [[Youtube]](https://www.youtube.com/@lastdays247)
 
@@ -22,7 +22,7 @@
 
 # Not Yet Fulfilled Prophecies
 ### An attempt is made to sort the prophecies in chronological order, based on the most likely sequence of events. All of the following will take place within the next 7-8 years from the time of this writing.
-- Trump doing a peace deal with Israel and Saudi Arabia enabling the construction of the third temple.
+- Trump doing a peace deal with Israel and Saudi Arabia enabling the construction of the third temple. The third temple is built.
 - USA Trade Wars.
 - Major shortages of medical supplies. Not enough medical supplies to do surgery.
 - Rioting, looting in the cities.
@@ -32,7 +32,7 @@
 - BRICS becomes the new world reserve currency and Soviet allies join BRICS.
 - To counter BRICS, Trump introduces a currency named ***Amero*** with Canada and Mexico being the first memebers. The rest of the Allied nations will join the Amero alliance shortly after.
 - World War 3 starts.
-- Weather manipulation/warfare. A new intensity of storms/hurricanes never seen before, akin to super-hurricanes; super-tornadoes; super-hail; super-straight-line winds. The weather manipulators lose control of the weather resulting in severe drought in the US.
+- Weather manipulation/warfare. A new intensity of storms/hurricanes never seen before, storms of biblical proportions, akin to super-hurricanes; super-tornadoes; super-hail; super-straight-line winds. The weather manipulators lose control of the weather resulting in severe drought in the US.
 - Global new virus/pandemic that kills 350 million in just the Americas alone.
 - Global famine happening in conjunction with the new virus.
 - Emmanuel Macron rises up as the pre-antichrist. The same spirit that was on Hitler is going to come onto him. Hilter 2.0, if you may, but he is not the antichrist.
