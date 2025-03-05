@@ -22,6 +22,7 @@
 
 # Not Yet Fulfilled Prophecies
 ### An attempt is made to sort the prophecies in chronological order, based on the most likely sequence of events. All of the following will take place within the next 7-8 years from the time of this writing.
+- Ukraine rising up.
 - Trump doing a peace deal with Israel and Saudi Arabia enabling the construction of the third temple. The third temple is built.
 - USA Trade Wars.
 - Major shortages of medical supplies. Not enough medical supplies to do surgery.
@@ -42,7 +43,7 @@
 - Major draft in the USA that includes women as well as men. Due to the push for gender equality.
 - Alien invasion/disclosure event.
 - Rapture of the Church some time in the year 2028 (My best guess based on everything I've looked into).
-- Antichrist is introduced. All power is given to him for 3.5 years. It will a man that comes from the Middle East region. He will mandate a one-world government, currency, and religion. You will be forced to worship him. He will mandate the **mind-control (aka. Mark of the Beast)** chip (based on a type of neurolink technology) that is to be implanted in your right hand or forehead. If you refuse, your head will be cut off. **If you take it, you will be damned to hell as it is the final rejection of God and free will.**
+- Antichrist is introduced. All power is given to him for 3.5 years. It will a man that comes from the Middle East region. He will mandate a one-world government, currency, and religion. You will be forced to worship him. He will mandate the ***mind-control (aka. Mark of the Beast)*** chip (based on a type of neurolink technology) that is to be implanted in your right hand or forehead. If you refuse, your head will be cut off. ***If you take it, you will be damned to hell as it is the final rejection of God and free will.***
 - Asteroid strikes off the coast of Florida, in the Atlantic Ocean.
 - Portland and Seattle split from the US and sink into the sea.
 - 10.0 earthquake that runs down the middle of the US nearly splitting the USA in half.
@@ -63,7 +64,7 @@
 # Conclusion
 If you have not yet given your life to Jesus, I urge you to do so now. The time is short, and the days are evil. The signs of the times are all around us, and it is clear that we are living in the last days. Jesus is the only way to salvation, and he is the only one who can save us from the coming judgment. If you have not yet accepted Jesus as your Lord and personal Savior, I encourage you to do so now. Repent of your sins, and ask Jesus to come into your heart and save you. He loves you and he wants to save you. Don't wait until it is too late. No one is promised tomorrow. Give your life to God, and submit fully unto Him, **NOW**, and be saved.
 
-If you have already accepted Jesus as your Lord and personal Savior, I encourage you to stay strong in your faith and to keep looking up. The day of the Lord is at hand, and our redemption draws near. Be ready, be watchful, and be prepared. Keep your eyes on Jesus, and he will see you through. God bless you, and may the Lord keep you and protect you in the days ahead. Amen.
+If you have already accepted Jesus as your Lord and personal Savior, I encourage you to stay strong in your faith and to keep looking up. Continue dying to self, daily. The day of the Lord is at hand, and our redemption draws near. Be ready, be watchful, and be prepared. Keep your eyes on Jesus, and He will see you through. God bless you, and may the Lord keep you and protect you in the days ahead. Amen.
 
 
 Shoot me a message if you have any questions or comments  (p3t3rtm2)(gmail)(com)
