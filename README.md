@@ -18,21 +18,26 @@
 ### [[Source]](https://youtu.be/Ey0qVzG8_vU?feature=shared&t=630)
 - Lawfare against trump in the summer of 2024. All charges dropped.
 - Red wave in 2024 election. Trump wins.
-- Trump assassination attempt on his life. Bullet flew by his right ear. 
+- Trump assassination attempt on his life. Bullet flew by his right ear.
 
 # Not Yet Fulfilled Prophecies
 ### An attempt is made to sort the prophecies in chronological order, based on the most likely sequence of events. All of the following will take place within the next 7-8 years from the time of this writing.
 - Trump doing a peace deal with Israel and Saudi Arabia enabling the construction of the third temple.
 - USA Trade Wars.
+- Major shortages of medical supplies. Not enough medical supplies to do surgery.
+- Rioting, looting in the cities.
 - Major attacks on US soil. Terrorism of immense magnitude.
 - Global economy crash of a lifetime. People lining up for food for miles.
-- Everything money related turns digital/crypto.
+- Everything money-related turns digital/crypto. The future 5-pillars of crypto are: BTC, XRP, ETH, SOL, DOGE. New regulations causing meme coins to fall like stars. 
 - BRICS becomes the new world reserve currency and Soviet allies join BRICS.
 - To counter BRICS, Trump introduces a currency named ***Amero*** with Canada and Mexico being the first memebers. The rest of the Allied nations will join the Amero alliance shortly after.
-- Global famine.
-- Global virus 350 million dead in the Americas alone.
-- Emmanuel Macron rises up as the pre-antichrist. The same spirit that was on Hitler is going to come onto him. Hilter 2.0, if you may, but he is not the antichrist.
 - World War 3 starts.
+- Weather manipulation/warfare. A new intensity of storms/hurricanes never seen before, akin to super-hurricanes; super-tornadoes; super-hail; super-straight-line winds. The weather manipulators lose control of the weather resulting in severe drought in the US.
+- Global new virus/pandemic that kills 350 million in just the Americas alone.
+- Global famine happening in conjunction with the new virus.
+- Emmanuel Macron rises up as the pre-antichrist. The same spirit that was on Hitler is going to come onto him. Hilter 2.0, if you may, but he is not the antichrist.
+- Israel strikes Iran, targetting their oil refineries.
+- Oil goes up to over $200 USD a barrel. Shortage of oil. People lining up for gas.
 - Russia uses a new type of bomb never used before (or even seen before, for that matter) that killed the people but left the buildings intact. The location of strike is in Warsaw, Poland.
 - Major draft in the USA that includes women as well as men. Due to the push for gender equality.
 - Alien invasion/disclosure event.
