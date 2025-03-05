@@ -24,9 +24,7 @@
 ### An attempt is made to sort the prophecies in chronological order, based on the most likely sequence of events. All of the following will take place within the next 7-8 years from the time of this writing.
 - Ukraine rising up. (Not sure what that means.)
 - Trump doing a peace deal with Israel and Saudi Arabia enabling the construction of the third temple. The third temple is built.
-- USA Trade Wars.
-- Major shortages of medical supplies. Not enough medical supplies to do surgery.
-- Rioting, looting in the cities.
+- USA Trade Wars. Major shortages of medical supplies as a result. Not enough medical supplies to do surgery. Eventually leads to empty shelves and rioting, looting in the streets, in the cities.
 - Major attacks on US soil. Terrorism of immense magnitude.
 - Global economy crash of a lifetime. People lining up for food for miles.
 - Everything money-related turns digital/crypto. The future 5-pillars of crypto are: BTC, XRP, ETH, SOL, DOGE. New regulations causing meme coins to fall like stars. 
