@@ -37,7 +37,7 @@
 - Major draft in the USA that includes women as well as men. Due to the push for gender equality.
 - Alien invasion/disclosure event.
 - Rapture of the Church some time in the year 2028 (My best guess based on everything I've looked into).
-- Antichrist is introduced. All power is given to him for 3.5 years. It will a man that comes from the Middle East region. He will mandate a one-world government, currency, and religion. You will be forced to worship him. He will mandate the mind-control chip (based on current neurolink technology) that is to be implanted in your right hand or forehead. If you refuse, your head will be cut off. If you take it, you will be damned to hell as it is the final rejection of God and free will.
+- Antichrist is introduced. All power is given to him for 3.5 years. It will a man that comes from the Middle East region. He will mandate a one-world government, currency, and religion. You will be forced to worship him. He will mandate the **mind-control (aka. Mark of the Beast)** chip (based on a type of neurolink technology) that is to be implanted in your right hand or forehead. If you refuse, your head will be cut off. **If you take it, you will be damned to hell as it is the final rejection of God and free will.**
 - Asteroid strikes off the coast of Florida, in the Atlantic Ocean.
 - Portland and Seattle split from the US and sink into the sea.
 - 10.0 earthquake that runs down the middle of the US nearly splitting the USA in half.
