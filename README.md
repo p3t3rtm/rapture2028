@@ -22,7 +22,7 @@
 
 # Not Yet Fulfilled Prophecies
 ### An attempt is made to sort the prophecies in chronological order, based on the most likely sequence of events. All of the following will take place within the next 7-8 years from the time of this writing.
-- Ukraine rising up.
+- Ukraine rising up. (Not sure what that means.)
 - Trump doing a peace deal with Israel and Saudi Arabia enabling the construction of the third temple. The third temple is built.
 - USA Trade Wars.
 - Major shortages of medical supplies. Not enough medical supplies to do surgery.
