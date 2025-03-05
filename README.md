@@ -33,7 +33,9 @@
 - BRICS becomes the new world reserve currency and Soviet allies join BRICS.
 - To counter BRICS, Trump introduces a currency named ***Amero*** with Canada and Mexico being the first memebers. The rest of the Allied nations will join the Amero alliance shortly after.
 - World War 3 starts.
+- Poisoned waters/lakes.
 - Weather manipulation/warfare. A new intensity of storms/hurricanes never seen before, storms of biblical proportions, akin to super-hurricanes; super-tornadoes; super-hail; super-straight-line winds. The weather manipulators lose control of the weather resulting in severe drought in the US.
+- Euprates Rivers in Middle East dries up.
 - Global new virus/pandemic that kills 350 million in just the Americas alone.
 - Global famine happening in conjunction with the new virus.
 - Emmanuel Macron rises up as the pre-antichrist. The same spirit that was on Hitler is going to come onto him. Hilter 2.0, if you may, but he is not the antichrist.
